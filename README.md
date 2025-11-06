@@ -23,7 +23,7 @@ The original author of this Bot is Ntkhang. This fork is maintained by: MahMUD
 If you find any issues, please report them!
 
 
-𝐅𝐚𝐜𝐞𝐛𝐨𝐨𝐤: <a href="https://www.facebook.com/mahmud.x07" style="color: black;">Mah M UD</a></h3></div>
+𝐅𝐚𝐜𝐞𝐛𝐨𝐨𝐤: <a href="https://www.facebook.com/mahmud0x7" style="color: black;">Mah M UD</a></h3></div>
 
 <p align="center"><a href="fb link" target="_blank" rel="noopener noreferrer">
   <img src="https://i.imgur.com/M6xV2Np.jpeg" width="100" style="margin-right: 10px;"></a>
@@ -32,18 +32,21 @@ If you find any issues, please report them!
 >🎀 Mah MUD
 </h5>
 
- 
+
+# 📝 **Tutorial**
+Tutorial has been uploaded on YouTube
+- For mobile phone: https://youtu.be/zJsemXLaRbY?si=f0PE6L4oCGzYBwPn
+
+  
 
 <div align="center">
 			<h3>Gmail:
 			<a href="mahmudx077@gmail.com" style="color: green;">MahMUDx7 </a>
 				<br>
-	𝐅𝐚𝐜𝐞𝐛𝐨𝐨𝐤: <a href="https://www.facebook.com/mahmud.x07" style="color: black;">MahMUD</a></h3></div>
+	𝐅𝐚𝐜𝐞𝐛𝐨𝐨𝐤: <a href="https://www.facebook.com/mahmud0x7" style="color: black;">MahMUD</a></h3></div>
 
 <img align="center" src="https://i.imgur.com/UM3ekFf.jpeg"/>
 
 
-🔹Ariyan Mahmud
+🔹ARIYAN MAHMUD
 
-
-Cookie: <a href="ekgmbjnloldgikngiachemodebfpkgdp.crx" style="color: black;">cookie download</a></h3></div>
